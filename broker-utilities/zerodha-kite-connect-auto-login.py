@@ -4,7 +4,7 @@ Kite Connect Auto-Login Script
 Created by: Subash Krishnan
 
 Contact Information:
-- Phone/WhatsApp: +919605006699, +65-94675969
+- Phone/WhatsApp: +919605006699
 - Email: Available on LinkedIn
 
 Social Links:
